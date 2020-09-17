@@ -1,11 +1,17 @@
 Valeria Ukrainskaya
 ======
-###### [ ukrlera96@gmail.com ] . [ 79603559580 ]
+###### [ ukrlera96@gmail.com ] . [ 79603559580 ] . [ Saratov]
+
+
 
 Education
 ---------
 **Preschool education, Faculty of Pedagogical and Special Needs Education in Saratov State University** (2014-2018)
 The objects of professional activity are education, upbringing, individual and personal development and health of preschool children, pedagogical support of children and parents.
+
+Experience
+----------
+**Teamleader
 
 Skills
 ------
